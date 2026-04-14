@@ -1,0 +1,1 @@
+# PrimeMegaTrendShop-Theme
